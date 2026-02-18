@@ -94,6 +94,9 @@ No publications yet.
 ---
 
 ## 📫 Connect With Me
+- GitHub: Desire-08  
+- LinkedIn:Keitumetse Bokaba 
+- Email: Keitumetsedesire94@gmail.com  
 
 - LinkedIn: (Add your LinkedIn link here)  
 - Email: (Add your professional email here)  
